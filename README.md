@@ -1,1 +1,2 @@
-# School-Projects
+# School Projects
+Please contact for access to private repository of school projects. For recruiters, supervisors, etc... 
